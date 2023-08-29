@@ -1,3 +1,4 @@
 # zambezi
 Visit Amazonka river.
-Wherer Zambezi is situated?
+Where's Zambezi situated?
+River Kvai in Thailand.
